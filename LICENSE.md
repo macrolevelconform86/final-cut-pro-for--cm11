@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with elite Final Cut Pro for macOS Overlay | echo-removal + slow-motion, the #1 overlay. Includes echo-removal and slow-motion for a smoother and
 
 
 
